@@ -1,4 +1,4 @@
-## Hi there 👋
+## welcome to my profile!
 
 <!--
 **no1za/no1za** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
