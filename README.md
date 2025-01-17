@@ -1,5 +1,5 @@
-## welcome to my profile!
-
+## welcome to my profile!🐟⭐‧₊ ᵎᵎ 🍒 ⋅ ˚✮
+local artist ฅ^>⩊<^ ฅ -`♡´- ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆
 <!--
 **no1za/no1za** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
