@@ -8,7 +8,7 @@ im awkward most of the time when talking, i dont really know what to say >_<
 pls read my name for dni/dniuf/etc 
 i also love playing games,(mostly roblox games)
 ⭒˚｡⋆👽👾★🌈 R4WR :P★🌈⚗️
-![image](https://github.com/user-attachments/assets/53c1ab69-5150-4738-8ca5-4b310d802b93)
+
 ![image](https://github.com/user-attachments/assets/a71fd73c-563e-4f71-9489-3c452bd30550)![image](https://github.com/user-attachments/assets/20c51131-bfab-4287-bdc9-6e79b2e29a1c)![image](https://github.com/user-attachments/assets/096d221d-4ad3-4303-bc6e-09ac1cbdcc0d)![image](https://github.com/user-attachments/assets/e4fdf1b2-1616-44b7-b819-b97fa73b10d9)![image](https://github.com/user-attachments/assets/4988dd92-b738-4dc4-b7b8-f56661d514f6)
 
 
