@@ -1,5 +1,5 @@
 ## welcome to my profile!🐟⭐‧₊ ᵎᵎ 🍒 ⋅ ˚✮
-local artist ฅ^>⩊<^ ฅ -`♡´- ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆
+this account was made for ponytown! not much to know about me, im a traditional artist and i love using emoticons ⸜(｡˃ ᵕ ˂)⸝♡ 
 <!--
 **no1za/no1za** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
