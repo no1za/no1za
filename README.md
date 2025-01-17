@@ -1,6 +1,8 @@
 ## welcome to my profile!🐟⭐‧₊ ᵎᵎ 🍒 ⋅ ˚✮
 this account was made for ponytown! not much to know about me, im a traditional artist and i love using emoticons ⸜(｡˃ ᵕ ˂)⸝♡ 
-![b71f1d3f9602c089fa4ce28fbc35e9df-removebg-preview](https://github.com/user-attachments/assets/bc865320-a456-4d58-b441-260ab10b2515)
+
+)![ad0d4e056cff90f89430406e04bc7853](https://github.com/user-attachments/assets/7d676df2-b097-4da1-9403-50168201221c)![2edde8576d63d171e607e5aa759e6404]
+![a6a8ea4de54e6197585cd3b8e2ab6a8e](https://github.com/user-attachments/assets/9b6cfc25-b9c9-4e3b-8dde-28675631ea2e)
 
 random things to know
 
