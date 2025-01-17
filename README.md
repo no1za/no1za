@@ -4,8 +4,8 @@ this account was made for ponytown! not much to know about me, im a traditional 
 
 random things to know
 
-i mostly sit alone, if you see me pls dont bother me unless ur a friend/close friend
-im not active on ponytown that much, mostly when im bored i guess
+i mostly sit alone, if you see me pls dont bother me unless ur a friend/close friend.
+im not active on ponytown that much, mostly when im bored i guess-
 im awkward most of the time when talking, i dont really know what to say >_<
 pls read my name for dni/dniuf/etc 
 
