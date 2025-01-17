@@ -1,7 +1,9 @@
-## welcome to my profile!🐟⭐‧₊ ᵎᵎ 🍒 ⋅ ˚✮
+## welcome to my profile!🌈⭐‧₊ ᵎᵎ 🍒 ⋅ ˚✮
 this account was made for ponytown! not much to know about me, im a traditional artist and i love using emoticons ⸜(｡˃ ᵕ ˂)⸝♡ 
 ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀
-random things to know
+
+random things to know ^_^ (꩜ ᯅ ꩜;)⁭ ⁭ !  .𖥔 ݁ ˖ 🛸
+
 i mostly sit alone, if you see me pls dont bother me unless ur a friend/close friend.
 im not active on ponytown that much, mostly when im bored i guess-
 im awkward most of the time when talking, i dont really know what to say >_<
