@@ -1,6 +1,8 @@
 ## welcome to my profile!🐟⭐‧₊ ᵎᵎ 🍒 ⋅ ˚✮
 this account was made for ponytown! not much to know about me, im a traditional artist and i love using emoticons ⸜(｡˃ ᵕ ˂)⸝♡ 
-<!--
+![b71f1d3f9602c089fa4ce28fbc35e9df-removebg-preview](https://github.com/user-attachments/assets/bc865320-a456-4d58-b441-260ab10b2515)
+![789015f176f21e395854911efb40899c-removebg-preview](https://github.com/user-attachments/assets/80f9eadd-ba8b-4080-b84b-910df0e5aa34)
+
 **no1za/no1za** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
@@ -11,6 +13,7 @@ Here are some ideas to get you started:
 - 🤔 I’m looking for help with ...
 - 💬 Ask me about ...
 - 📫 How to reach me: ...
+
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
