@@ -7,7 +7,7 @@ random things to know ^_^ (꩜ ᯅ ꩜;)⁭ ⁭ !  .𖥔 ݁ ˖ 🛸
 
 i mostly sit alone, if you see me pls dont bother me unless ur a friend/close friend.
 im not active on ponytown that much, mostly when im bored i guess-
-im awkward most of the time when talking, i dont really know what to say >_<
+i usually set my status as offline cuz i dont feel like taking much ⭐
 pls read my name for dni/dniuf/etc 
 i also love playing games,(mostly roblox games)
 ⭒˚｡⋆👽👾★🌈 R4WR :P★🌈⚗️
