@@ -11,6 +11,7 @@ i usually set my status as offline cuz i dont feel like taking much ⭐
 pls read my name for dni/dniuf/etc 
 i also love playing games,(mostly roblox games)
 ⭒˚｡⋆👽👾★🌈 R4WR :P★🌈⚗️
+
 ![image](https://github.com/user-attachments/assets/07a26e9f-f4e8-4e86-9075-106a15a1a848)
 
 
